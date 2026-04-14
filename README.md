@@ -12,4 +12,5 @@ A estratégia foi baseada na identificação da dor do público, seguida de uma 
 ![2](https://github.com/eduardambatista0-wq/portfolio-marketing/raw/main/WhatsApp%20Image%202026-04-14%20at%2015.14.47%20(1).jpeg)
 ![3](https://github.com/eduardambatista0-wq/portfolio-marketing/raw/main/WhatsApp%20Image%202026-04-14%20at%2015.14.48%20(4).jpeg)
 ![4](https://github.com/eduardambatista0-wq/portfolio-marketing/blob/main/WhatsApp%20Image%202026-04-14%20at%2015.14.48%20(3).jpeg)
-![5]()
+![5](https://github.com/eduardambatista0-wq/portfolio-marketing/blob/main/WhatsApp%20Image%202026-04-14%20at%2015.14.48%20(1).jpeg)
+![6]()
