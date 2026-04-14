@@ -1,4 +1,5 @@
-#![0](https://github.com/eduardambatista0-wq/portfolio-marketing/raw/main/1000383836-removebg-preview.png)💛Maria Eduarda - Porfólio de Marketing.
+![0](https://github.com/eduardambatista0-wq/portfolio-marketing/raw/main/1000383836-removebg-preview.png)
+# 💛Maria Eduarda - Porfólio de Marketing.
 ## Sobre mim.
 Sou estudante de Marketing, atualmente em transição de carreira após experiência na área comercial e atendimento ao cliente. Ao longo da minha trajetória, desenvolvi habilidades em comunicação, negociação e relacionamento com o público, o que despertou meu interesse por estratégias de marketing e comportamento do consumidor.
 Hoje, estou focada em desenvolver conhecimentos em marketing digital, criação de conteúdo e posicionamento de marca, com o objetivo de iniciar minha carreira na área e gerar valor através de estratégias que conectem marcas e pessoas.
