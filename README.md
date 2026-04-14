@@ -15,5 +15,18 @@ A estratégia foi baseada na identificação da dor do público, seguida de uma 
 ![5](https://github.com/eduardambatista0-wq/portfolio-marketing/raw/main/WhatsApp%20Image%202026-04-14%20at%2015.14.48%20(1).jpeg)
 ![6](https://github.com/eduardambatista0-wq/portfolio-marketing/raw/main/WhatsApp%20Image%202026-04-14%20at%2015.14.48%20(2).jpeg)
 ![7](https://github.com/eduardambatista0-wq/portfolio-marketing/blob/main/WhatsApp%20Image%202026-04-14%20at%2015.14.48.jpeg)
-![8]()
-![9]()
+![8](https://github.com/eduardambatista0-wq/portfolio-marketing/blob/main/WhatsApp%20Image%202026-04-14%20at%2015.14.49%20(1).jpeg)
+### Projeção de Resultados
+Como se trata de um projeto estratégico, foram definidos os seguintes resultados esperados com base nas ações propostas:
+- Aumento do engajamento nas redes sociais.
+- Crescimento do alcance das publicações.
+- Maior reconhecimento da marca no ambiente digital.
+- Geração de interesse e atração de novos potenciais clientes.
+⚠ Com a execução contínua da estratégia, espera-se uma evolução gradual desses indicadores, contribuindo para o fortalecimento da marca e aumento das oportunidades de conversão.
+
+## Contatos
+Vamos construir algo juntos(as)?
+Linkedin: www.linkedin.com/in/maria-eduarda-da-silva-batista-804a1327b
+Whatsapp: (31) 99269-7580
+E-mail: eduarda.mbatista0@gmail.com
+
