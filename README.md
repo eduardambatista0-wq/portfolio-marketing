@@ -1,4 +1,4 @@
-# ![0](https://github.com/eduardambatista0-wq/portfolio-marketing/raw/main/1000383836-removebg-preview.png)💛Maria Eduarda - Porfólio de Marketing.
+#![0](https://github.com/eduardambatista0-wq/portfolio-marketing/raw/main/1000383836-removebg-preview.png)💛Maria Eduarda - Porfólio de Marketing.
 ## Sobre mim.
 Sou estudante de Marketing, atualmente em transição de carreira após experiência na área comercial e atendimento ao cliente. Ao longo da minha trajetória, desenvolvi habilidades em comunicação, negociação e relacionamento com o público, o que despertou meu interesse por estratégias de marketing e comportamento do consumidor.
 Hoje, estou focada em desenvolver conhecimentos em marketing digital, criação de conteúdo e posicionamento de marca, com o objetivo de iniciar minha carreira na área e gerar valor através de estratégias que conectem marcas e pessoas.
@@ -22,6 +22,7 @@ Como se trata de um projeto estratégico, foram definidos os seguintes resultado
 - Crescimento do alcance das publicações.
 - Maior reconhecimento da marca no ambiente digital.
 - Geração de interesse e atração de novos potenciais clientes.
+
 ⚠ Com a execução contínua da estratégia, espera-se uma evolução gradual desses indicadores, contribuindo para o fortalecimento da marca e aumento das oportunidades de conversão.
 
 ## 📞Contatos
