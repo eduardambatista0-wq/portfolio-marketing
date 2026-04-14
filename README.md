@@ -25,7 +25,7 @@ Como se trata de um projeto estratégico, foram definidos os seguintes resultado
 ⚠ Com a execução contínua da estratégia, espera-se uma evolução gradual desses indicadores, contribuindo para o fortalecimento da marca e aumento das oportunidades de conversão.
 
 ## 📞Contatos
-Vamos construir algo juntos(as)? Entre em contato comigo!
+Vamos construir algo juntos? Entre em contato comigo!
 - Linkedin: www.linkedin.com/in/maria-eduarda-da-silva-batista-804a1327b
 - Whatsapp: (31) 99269-7580
 - E-mail: eduarda.mbatista0@gmail.com
