@@ -26,7 +26,7 @@ Como se trata de um projeto estratégico, foram definidos os seguintes resultado
 
 ## Contatos
 Vamos construir algo juntos(as)?
-Linkedin: www.linkedin.com/in/maria-eduarda-da-silva-batista-804a1327b
-Whatsapp: (31) 99269-7580
-E-mail: eduarda.mbatista0@gmail.com
+- Linkedin: www.linkedin.com/in/maria-eduarda-da-silva-batista-804a1327b
+- Whatsapp: (31) 99269-7580
+- E-mail: eduarda.mbatista0@gmail.com
 
