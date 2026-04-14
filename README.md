@@ -9,4 +9,5 @@ Aumentar o engajamento e gerar conversões, utilizando uma comunicação direta 
 A estratégia foi baseada na identificação da dor do público, seguida de uma construção lógica que conduz o leitor até a solução, finalizando com uma chamada para ação.
 ### Artes Criadas
 ![1](https://github.com/eduardambatista0-wq/portfolio-marketing/raw/main/WhatsApp%20Image%202026-04-14%20at%2015.14.47.jpeg)
-![2](
+![2](https://github.com/eduardambatista0-wq/portfolio-marketing/raw/main/WhatsApp%20Image%202026-04-14%20at%2015.14.47%20(1).jpeg)
+[3](
