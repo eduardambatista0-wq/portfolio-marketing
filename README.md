@@ -5,6 +5,8 @@ Hoje, estou focada em desenvolver conhecimentos em marketing digital, criação 
 ## Projeto: Carrossel Estratégico para Conversão em Vendas.
 ### Objetivo
 Aumentar o engajamento e gerar conversões, utilizando uma comunicação direta voltada para dores do público que deseja vender mais através do conteúdo digital.
-### Estratégia
+### Estratégia Utilizada
 A estratégia foi baseada na identificação da dor do público, seguida de uma construção lógica que conduz o leitor até a solução, finalizando com uma chamada para ação.
 ### Artes Criadas
+![1](https://github.com/eduardambatista0-wq/portfolio-marketing/raw/main/WhatsApp%20Image%202026-04-14%20at%2015.14.47.jpeg)
+![2](
