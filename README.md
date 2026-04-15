@@ -1,6 +1,6 @@
 ![0](https://github.com/eduardambatista0-wq/portfolio-marketing/raw/main/1000383836-removebg-preview.png)
 # 💛Maria Eduarda - Porfólio de Marketing.
-## Sobre mim.
+## ⚜Sobre mim.
 Sou estudante de Marketing, atualmente em transição de carreira após experiência na área comercial e atendimento ao cliente. Ao longo da minha trajetória, desenvolvi habilidades em comunicação, negociação e relacionamento com o público, o que despertou meu interesse por estratégias de marketing e comportamento do consumidor.
 
 Hoje estou focada em desenvolver conhecimentos em marketing digital, criação de conteúdo e posicionamento de marca, com o objetivo de iniciar minha carreira na área e gerar valor através de estratégias que conectem marcas e pessoas.
@@ -29,7 +29,8 @@ Como se trata de um projeto estratégico, foram definidos os seguintes resultado
 ⚠ Com a execução contínua da estratégia, espera-se uma evolução gradual desses indicadores, contribuindo para o fortalecimento da marca e aumento das oportunidades de conversão.
 
 ## 📞Contatos
-Vamos construir algo juntos? Entre em contato comigo!
+Vamos construir algo juntos? 
+Entre em contato comigo!
 - Linkedin: www.linkedin.com/in/maria-eduarda-da-silva-batista-804a1327b
 - Whatsapp: (31) 99269-7580
 - E-mail: eduarda.mbatista0@gmail.com
